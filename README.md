@@ -1,7 +1,7 @@
 # DIFERENÇA DE SALÁRIOS NO BRASIL
 
-*Este artigo foi publicado no [LinkedIn]() no dia 18/01/2018  
-*This article was published in English on [LinkedIn]() on 01/18/2018
+*Este artigo foi publicado no [LinkedIn](https://www.linkedin.com/pulse/diferen%C3%A7a-de-sal%C3%A1rios-entre-homens-e-mulheres-pereira-batista/) no dia 18/01/2018  
+*This article was published in English on [LinkedIn](https://www.linkedin.com/pulse/gender-wage-gap-brazil-jo%C3%A3o-augusto-pereira-batista/) on 01/18/2018
 
 ## Existe discriminação no pagamento de funcionários?
 
